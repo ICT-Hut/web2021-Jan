@@ -10,3 +10,6 @@ Welcome here
 5. https://github.com/abrazan675
 6. https://github.com/Ritawilliam3
 7. https://github.com/saadfrmatow
+<br>
+as their teacher 
+https://github.com/samiromer2
